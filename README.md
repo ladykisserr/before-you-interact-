@@ -11,4 +11,4 @@ hallo hallooo!! my name is hyunjin! call me by however, i dont mind really, if u
 
 THANK YOUUU! for giving me your time in reading these terms! have a nice day fellas! toodle-oooo!! 
 
-https://i.pinimg.com/originals/94/ef/c1/94efc1f83981d7eaebfa4cf572f2a288.gif
+
