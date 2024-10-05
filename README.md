@@ -1,14 +1,18 @@
 # before-you-interact-
-hallo hallooo!! my name is hyunjin! call me by however, i dont mind really, if u know me irl just avoid using my real name hehe, im tryna keep a gap between my irl identity and online, i hope ya can respect that! anyywayyyss, before you interact with me, make sure to read these terms!
+Hello!
 
--> DONT and i mean DONT copy or take inspos of my skins!! this is a veryy big no no! i've seen a lot of people try to copy my skins and that reallly really irritates me! Dont ever think that i wont notice because i can identify my work very easily! Dont take it as an advantage that i wont confront you. But one of my friends will! and i will NOT interact with you, if you ever decided to do so.
+My name is Hyunjin. You may call me by any name you prefer, but if you know me in real life, I kindly request that you refrain from using my real name, as I wish to maintain a distinction between my online identity and my offline one. I hope you can respect this.
 
--> AVOID being insensitive! be mindful of whatchu say around me! i may not say anything about it but it would make me veryyy uncomfortable around you, dont bring up SA jokes, Jokes are supposed to be funny and thats clearly not... if you ever do i will NOT enjoy talking to you at all.
+Before interacting with me, please take a moment to review the following terms:
 
--> RESPECT my boundaries! people tend to have boundaries set up around them to let other people know which line not to cross! lets be mindful about these boundaries and make sure not to cross them so we dont make people uncomfortable about out actions!
+1. **Originality of Skins**: Please do not copy or draw inspiration from my skins. This is very important to me, as I have noticed instances of imitation that have been quite frustrating. I can easily identify my work, and if this occurs, I will not hesitate to involve a friend on my behalf. Consequently, I will refrain from interacting with anyone who disregards this request.
 
--> REGARDING c+h ! c+h is ALWAYYS GOOD! dont be afraid to sit next to me! as long as you're willing to follow the terms above then youre all goods! i might even stike a convo with ya! Although i may not respond sometimes, that would mean i am offtab or afk!
+2. **Sensitivity**: It is essential to be mindful of the language used in our conversations. Certain topics, particularly those involving jokes about sensitive subjects, can be deeply uncomfortable for me. If such comments are made, I may find it difficult to enjoy our interactions.
 
-THANK YOUUU! for giving me your time in reading these terms! have a nice day fellas! toodle-oooo!! 
+3. **Respect for Boundaries**: Everyone has personal boundaries that help create a comfortable environment. I ask that you be respectful of these boundaries to ensure our interactions remain positive and enjoyable.
 
+4. **Conversations and Socializing**: I welcome friendly interactions! As long as you are willing to adhere to the terms outlined above, I would be happy to engage in conversation with you. Please understand that if I do not respond immediately, I may be away from my device.
 
+Thank you for taking the time to read these terms. Wishing you a pleasant day!
+
+Best regards.
